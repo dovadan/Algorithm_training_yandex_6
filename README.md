@@ -1,0 +1,1 @@
+# Algorithm_training_yandex_6
